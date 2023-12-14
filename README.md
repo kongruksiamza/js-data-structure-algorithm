@@ -1,5 +1,5 @@
 ## ☕ ช่องทางการสนับสนุน
-- [🎓 คอร์สเรียนบน Udemy](https://github.com/kongruksiamza/udemy-course)
+- [🎓 คอร์สเรียนบน Udemy]([https://github.com/kongruksiamza/udemy-course](https://github.com/oya254))
 - [🛒 ซื้อของผ่าน Shopee](https://shope.ee/3plB9kVnPd)
 
 ## 💓 ช่อง Youtube ในเครือของเรา
